@@ -9,4 +9,4 @@
 <p align="left"> </p>
 
 
-Love U Harsh from Harsh
+Proposal Removed
